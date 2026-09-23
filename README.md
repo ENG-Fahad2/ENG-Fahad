@@ -1,2 +1,0 @@
-# ENG-Fahad
-Cybersecurity-CV⁠
